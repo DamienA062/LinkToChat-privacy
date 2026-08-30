@@ -1,4 +1,4 @@
-# Privacy Policy — StreamLink
+# Privacy Policy - StreamLink
 
 **Last updated:** August 30, 2026
 
