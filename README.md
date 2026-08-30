@@ -1,4 +1,4 @@
-# Privacy Policy - LinkToChat
+# Privacy Policy - LinkToChat (for Twitch)
 
 **Last updated:** August 30, 2026
 
